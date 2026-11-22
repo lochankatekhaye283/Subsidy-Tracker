@@ -1,2 +1,3 @@
 # Subsidy-Tracker
-Your all new idea to get set government schemes on your device fast and get rid to those  
+Our all new idea to get set government schemes  fast and get rid to those lengthy process we got the way!
+Check it!!!
